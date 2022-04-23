@@ -1,0 +1,1 @@
+O assunto dessa semana foi muito dificl, todos são mas esse parece que foi mais, tentando fazer senpre com a ajuda das coelgas que são maravilhosas. 
